@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Fuckmylike
+- 👀 I’m interested in nft
+- 🌱 I’m currently learning the smart contract
+- 💞️ I’m looking to collaborate on some website development or nft project!!!
+- 📫 How to reach me : please email me
